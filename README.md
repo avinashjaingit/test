@@ -7,4 +7,4 @@ but god knows where it will come
 but i will get that 
 
 
-i will become ba4
+i will become ba4 ba4
